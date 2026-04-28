@@ -3,5 +3,3 @@
 - 🌱 I’m currently learning how to fix old collection cars
 - 💞️ I’m looking to collaborate on anything in fact, the more I learn the better
 - 📫 How to reach me : hyacinthe.chaigne@gmail.com
-- Website : https://hyacinthe.chaigne.hyay.ovh
-- My project : https://heropean.hyay.ovh/
